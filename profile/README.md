@@ -5,10 +5,10 @@ We create professional websites made on the basis of information provided by the
 Do you want to know more about the studio? By entering our website [here](https://seaclipstudio.ml) you will find the most important information!
 
 ### 📞 Do you want to contact us?
-▪ YOUTUBE: SeaClip Studio
+▪ YOUTUBE: SeaClip Studio - COMMING SOON
 
-▪ TWITTER: SeaClip
+▪ TWITTER: SeaClip - COMMING SOON
 
-▪ TIKTOK: Seaclip
+▪ TIKTOK: Seaclip - COMMING SOON
 
 ▪ MAIL: seaclipstudio@gmail.com
